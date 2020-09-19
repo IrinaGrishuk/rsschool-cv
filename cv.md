@@ -6,7 +6,7 @@ Belarus, Grodno, Kremko 1-15
 
 *Education:*
 * 2005-2010 Belarus State University, bioecologist
-* julay 2014, Summer Dance School "Notafe" (Vilandi, Estonia)
+* julay 2014, Summer Dance School "Notafe" (Viljandi, Estonia)
 * august 2015 Trinity Laban Dance Summer School (London, Great Britain)
 
 *Intermediate English Level*
