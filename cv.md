@@ -10,5 +10,5 @@ Belarus, Grodno, Kremko 1-15
 * august 2015 Trinity Laban Dance Summer School (London, Great Britain)
 
 *Intermediate English Level*
-studed English in 'Mr. English' school, language practice in Viljandi and London during summer dance school
+studed English in 'Mr. English' school; language practice in Viljandi and London during summer dance school
 
