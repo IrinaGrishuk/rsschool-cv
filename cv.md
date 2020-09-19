@@ -1,1 +1,14 @@
+# Irina Grishuk
+
+*Contact*
+email: vasilek_ira16@mail.ru
+Belarus, Grodno, Kremko 1-15
+
+*Education:*
+* 2005-2010 Belarus State University, bioecologist
+* julay 2014, Summer Dance School "Notafe" (Vilandi, Estonia)
+* august 2015 Trinity Laban Dance Summer School (London, Great Britain)
+
+*Intermediate English Level*
+studed English in 'Mr. English' school, language practice in Viljandi and London during summer dance school
 
